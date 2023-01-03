@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming and designing websites.
 - 🌱 I’m currently learning Software Engineering at Informatics Institute of Technology.
 - 👩‍🎓 I’m an undergraduate student.
-- 🥰 Nicknames: You can call me Nish 😌
+- 🥰 You can call me Nish 
 - 📫 How to reach me : 
 - Facebook (https://www.facebook.com/profile.php?id=100084432848059) 
 - Instagram ( https://www.instagram.com/janishafernando_02/)- 
